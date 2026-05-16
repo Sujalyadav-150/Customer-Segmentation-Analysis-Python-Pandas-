@@ -1167,4 +1167,4 @@ A **reference guide** to the 11 segments and suggested actions per segment is in
 
 # About Me
 
-[Daniel Isidro](https://www.linkedin.com/in/daniel-isidro/)
+[sujal yadav](https://www.linkedin.com/in/sujal-yadav/)
